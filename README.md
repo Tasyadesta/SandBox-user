@@ -7,4 +7,4 @@ Nama Kelompok :
 
 2. Tasya Desta Febrisa Nuke (201910370311222)
 
-3. Riris Andarista (201910370311245)
+3. Riris Fitri Ramadhani (201910370311245)
